@@ -14,3 +14,9 @@
 
 - 入职安庆某铁塔（国企）  呆的一笔**
 - 准备2022年3月底辞职了
+
+- 2024-5-25  update status
+-   Quit my job from China Tower at 2023-03  &  try to have a new beginning at Majong but final give up
+-   Now i'm do a job without salary at HaiNan in a sea-wave store.
+-   Next step prepare for getting a job at somewhere which have a good future.
+-   Good luck to me！
